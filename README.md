@@ -1,3 +1,3 @@
 # FallBoy
 
-[![IMAGE ALT TEXT HERE](https://img.youtube.com/vi/watch?v=d4DHKfcxZt0/0.jpg)](https://www.youtube.com/watch?v=d4DHKfcxZt0)
+[![IMAGE ALT TEXT HERE](https://imgur.com/a/qrP4kxx)](https://www.youtube.com/watch?v=d4DHKfcxZt0)
